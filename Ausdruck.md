@@ -9,6 +9,7 @@ teilen von Mikro-Momenten
 gemeinsames Lachen
 
 
+
 Verbindend:
 
 Beobachtung spiegeln
