@@ -15,4 +15,4 @@ Deutliche, selbstbewusste Aussprache
 nicht sofort reagieren müssen
 
 
-Ziel: nicht aus Nervositöt, sondern aus Stabilität handeln
+Ziel: nicht aus Nervosität, sondern aus Stabilität handeln
